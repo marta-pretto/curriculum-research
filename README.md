@@ -61,5 +61,36 @@ Marci, T., Pretto, M., Calignano, G., Altoè, G., Epifania, O., Moscardino, U. (
 <br>
 <a href="https://marta-pretto.github.io/curriculum-research/2026_aip-sviluppo_abstract.pdf">Abstract submitted</a><br>
 <a href="https://marta-pretto.github.io/curriculum-research/2026_aip-sviluppo_confirmation.pdf">Submission confirmation</a>
+<br>
 
+
+
+<br>
+
+# Language certificates
+
+<br>
+<strong>Online Language Support assessment</strong><br>
+08/09/2021 | Online Language Support (as part of the Erasmus+ Study project)<br>
+<a href="https://marta-pretto.github.io/curriculum-research/english_c1_ols.pdf">Certificate</a>
+
+<br>
+<strong>First Certificate in English</strong><br>
+01/05/2018 | Cambridge Assessment English<br>
+<a href="https://marta-pretto.github.io/curriculum-research/english_b2_first.pdf">Certificate</a>
+
+<br>
+<strong>Goethe Zertifikat B1</strong><br>
+14/12/2017 | Goethe Institut<br>
+<a href="https://marta-pretto.github.io/curriculum-research/german_b1_goethe.pdf">Certificate</a>
+
+<br>
+<strong>Introductory training course on Italian Sign Language</strong><br>
+25/01/2020 – 15/03/2020 | Biblioteca di Arzignano (VI)<br>
+<a href="https://marta-pretto.github.io/curriculum-research/lis_2020.pdf">Certificate</a>
+
+<br>
+<strong>Training course on Fundamentals of Italian Sign Language</strong><br>
+27/09/2019 – 06/12/2019 | Libreria Il colore del grano (Schio, VI)<br>
+<a href="https://marta-pretto.github.io/curriculum-research/lis_2019.pdf">Certificate</a>
 
